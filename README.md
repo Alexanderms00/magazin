@@ -1,2 +1,2 @@
 # magazin
-https://alexanderms00.github.io/magazin/
+https://Vladislavms2002.github.io/magazin/
